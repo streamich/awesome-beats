@@ -17,9 +17,31 @@
 
 - [🎧](https://www.youtube.com/watch?v=0FCo8vGUKuE) [__Breakbeat Classic Mix__](https://t.co/ZEnDJxoWL6)
 - [🎧](https://www.youtube.com/watch?v=Mpm8EphOtm4) [__OLD BREAKBEAT MUSIC MIX Vol 4__](https://t.co/ZEnDJxoWL6)
+
+
+<br />
+<br />
+
+<h1 align="center"><sub>Beats</sub></h1>
+
+<br />
+<br />
+
+
 - [🎧](https://www.youtube.com/watch?v=RkkdYdWMfQ0) [__CAR MUSIC MIX 2018__](https://t.co/ZEnDJxoWL6)
 - [🎧](https://www.youtube.com/watch?v=NVQjG0ITzus) [__TRAP & BAS__](https://t.co/ZEnDJxoWL6)
 
+
+<br />
+<br />
+
+<h1 align="center"><sub>Vocals</sub></h1>
+
+<br />
+<br />
+
+- [🎧](https://www.youtube.com/watch?v=t2Dhil2n59o) [__CAR MUSIC MIX 2018Dimash'es all performances in "The Singer 2017"__](https://t.co/ZEnDJxoWL6)
+- [🎧](https://www.youtube.com/watch?v=_Uu12zY01ts) [__Queen - Greatest Hits (1) [1 hour long]__](https://t.co/ZEnDJxoWL6)
 
 <br />
 <br />
