@@ -40,7 +40,7 @@
 <br />
 <br />
 
-- [🎧](https://www.youtube.com/watch?v=t2Dhil2n59o) [__CAR MUSIC MIX 2018Dimash'es all performances in "The Singer 2017"__](https://t.co/ZEnDJxoWL6)
+- [🎧](https://www.youtube.com/watch?v=t2Dhil2n59o) [__Dimash'es all performances in "The Singer 2017"__](https://t.co/ZEnDJxoWL6)
 - [🎧](https://www.youtube.com/watch?v=_Uu12zY01ts) [__Queen - Greatest Hits (1) [1 hour long]__](https://t.co/ZEnDJxoWL6)
 
 <br />
